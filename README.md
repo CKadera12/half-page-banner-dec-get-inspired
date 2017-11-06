@@ -1,1 +1,0 @@
-# half-page-banner-dec-get-inspired
